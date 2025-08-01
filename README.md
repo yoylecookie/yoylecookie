@@ -23,7 +23,7 @@ Discord:
 https://discord.com/users/1357512682827419830/
 ```
 
-📫 Email: yoyle_cookie@proton.me
+📫 Email: yoyle.cooki.e@proton.me
 
 🍪 My favorite food is cookies
 
